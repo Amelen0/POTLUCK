@@ -1,3 +1,3 @@
 # POTLUCK
 The Ultimate Coding Cookbook
-![Alt Text](http://disneypixar.tumblr.com/image/98179748504)
+![Alt Text](http://www.sheawong.com/wp-content/uploads/2013/08/keephatin.gif)
